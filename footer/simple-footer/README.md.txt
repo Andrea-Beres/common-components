@@ -1,0 +1,1 @@
+Egyszerû lábjegyzet minta
